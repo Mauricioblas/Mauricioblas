@@ -1,5 +1,4 @@
-### Hi there 👋
-
+### Soy Blasco Mauricio de 4°1° avionica 😎 ⚡ 🇦🇷
 <!--
 **Mauricioblas/Mauricioblas** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
